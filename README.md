@@ -1,0 +1,1 @@
+# ADBMS_23BCS12967_krg2A
